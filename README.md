@@ -1,6 +1,4 @@
 # 私密入口
-:sunglasses::sunglasses:糟老头导航:sunglasses::sunglasses:
-:sunglasses::sunglasses:地址发布:sunglasses::sunglasses:
 ==
 :heart: :point_right: 【地址一】 ：http://www.hb80.xyz/
 ------
