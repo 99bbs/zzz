@@ -1,7 +1,7 @@
 # 狼友私密入口
 :heart: :point_right: 【地址一】 ：http://paojiaosp.com/
 ------
-:heart: :point_right: 【地址二】 ：http://qq.paojiaosp.com/
+:heart: :point_right: 【地址二】 ：http://cc.paojiaosp.com/
 ------
 :heart: :point_right: 【邮箱联系方式】 ：sanwua099@gmail.com
 ------
